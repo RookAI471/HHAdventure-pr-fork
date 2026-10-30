@@ -108,4 +108,6 @@ We purchased butcher block, cut it to size, and installed collapsible legs. Fren
 
 ![Table ready to use](/images/Driver%20Wall/IMG_0725.jpg)
 
-![Table stowed](/images/Driver%20Wall/IMG_0729.jpg)
+Completing the driver's side wall gives us considerably more storage for toiletries, along with a place for our son to keep his books, toys, and drinks. The butcher-block table is easy to lower for homework, dining, or a game of cards, and just as easy to stow safely when we're done. Beyond making the van more useful, this project brings a significant part of our living space closer to the finished look we've been working toward.
+
+![Completed driver's side wall with birch shelving, hand-knotted nets, reinstalled upper cabinets, and the table stowed](/images/Driver%20Wall/IMG_0729.jpg)
