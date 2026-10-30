@@ -108,4 +108,4 @@ We purchased butcher block, cut it to size, and installed collapsible legs. Fren
 
 ![Table ready to use](/images/Driver%20Wall/IMG_0725.jpg)
 
-![Table stowed](/images/Driver%20Wall/IMG_0729.jpg)
+![Completed driver's side wall with birch shelving, hand-knotted nets, reinstalled upper cabinets, and the table stowed](/images/Driver%20Wall/IMG_0729.jpg)

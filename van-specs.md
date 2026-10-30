@@ -14,7 +14,7 @@ A quick reference for the current build.
 - Family camper build
 - Phase 1 basic camping setup completed for summer 2025
 - Phase 2 has added better sleeping, storage, insulation, power, lighting, and interior finishes
-- Current build focus: remaining walls, a fold-down table, permanent kitchen, and final kitchen electrical
+- Current build focus: remaining walls, permanent kitchen, and final kitchen electrical
 
 ## Sleeping and layout
 
@@ -39,6 +39,7 @@ A quick reference for the current build.
 - Two 175W solar panels
 - Roof fans
 - Rear van capsules with windows
+- Custom birch framing and upholstered trim around the rear capsule windows
 - Havelock Wool insulation
 - Baltic birch plywood ceiling and upper wall panels
 - L-track along the ceiling and upper walls for mounting and cabinet support
@@ -52,6 +53,9 @@ A quick reference for the current build.
 - Toilet cabinet door added
 - Rear cargo door pockets, side door pocket, and headliner storage added
 - Zippered upper cabinets added for clothing and smaller camping gear
+
+- Custom birch shelving along the driver's side, with hand-knotted shelf nets and a bottle holder
+- Butcher-block table with collapsible legs and French-cleat wall mounts for use and stowage
 
 ## Cab and cameras
 
